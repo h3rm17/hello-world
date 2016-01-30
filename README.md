@@ -1,2 +1,1 @@
-# hello-world
-Just another repository
+hey bitch its science
